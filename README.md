@@ -1,8 +1,5 @@
-rrently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to rea
-
-<!---
-shouldtory because its `README.md` (this file) appears on your GitHub profile.
-You can click the nk to take a look at your changes.
---->
+hi me vaneet 
+ok so what do you know about me 
+I am 21 year old 
+l am a graphic design artist 
+ok by 
